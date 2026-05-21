@@ -1,0 +1,1 @@
+# Carga-DC-con-perfiles-din-micos-de-inversor
